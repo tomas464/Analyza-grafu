@@ -1,0 +1,1 @@
+# Anal-za-grafu
